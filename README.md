@@ -5,7 +5,7 @@ No. 20, Ln. 15, Dexiang St., South Dist., Taichung City 402 , Taiwan (R.O.C.)
 
 Tel: +886-936-251-159
 
-Email: timmy753159@gmail.com
+Email: timmy753159@gmail.com,
        109021491@live.asia.edu.tw
 
 ## Education
